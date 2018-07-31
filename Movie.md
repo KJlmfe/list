@@ -18,3 +18,6 @@
 1. 丹麦女孩 [丹豆瓣 8.1分](https://movie.douban.com/subject/3071604/)
 1. 逃避虽可耻但有用 逃げるは恥だが役に立つ 
 1. [除了《釜山行》还有哪些绝望电影，看完足以毁掉一个正常人的三观](https://mp.weixin.qq.com/s?__biz=MzAwMzI2ODgwNg==&mid=2683273271&idx=1&sn=0d0ac9fa924b9d9368087193eb3a47f1&chksm=8126e99eb6516088d30b3b450496727cfd3adeba82b2694009411614be196019a44329cc04f1&scene=0#wechat_redirect)
+1. 太累了 纪录片
+    - 最知名的一次穿越是二〇〇三年，瑞典人科洛士（ Janne Corax）和舒勒尔（ Nadine Saulnier）用了四十七天时间穿越东羌塘，其中三十七天不见一人。《美国国家地理》为此制作了纪录片，名字叫《太累了》。
+    - [Into The Unknown 02 Too Tired](https://www.youtube.com/watch?v=nErQSPHTVC8)
