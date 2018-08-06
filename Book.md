@@ -36,3 +36,4 @@ Inspired by [ruanyf/reading-list](https://github.com/ruanyf/reading-list)
 1. 从黎明到衰落
 1. 艺术的故事
 1. 货币战争
+1. 软技能：代码之外的生存指南
